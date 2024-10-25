@@ -2,7 +2,7 @@
 - 👀 I’m interested in Artificial intelligence
 - 🌱 I’m currently learning AI & ML
 - 💞️ I’m looking to collaborate on NVIDIA 
-- 📫 How to reach me Email 📨 
+- 📫 How to reach me Gmail 📨 
 - 😄 Pronouns: he
 - ⚡ Fun fact: The air you breathe in a train station is 15% human skin. 
 
